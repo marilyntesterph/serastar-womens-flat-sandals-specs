@@ -29,7 +29,7 @@ Public documentation for SERASTAR women's flat sandals, ASIN B0CPD27972.
 Suitable for casual summer wear, light walking, dressy casual outfits, and everyday use where a flat sandal with ankle fastening is preferred.
 
 ## Amazon listing
-[View product on Amazon](https://www.amazon.com/dp/B0CPD27972)
+[View product on Amazon](https://www.amazon.com/SERASTAR-Flat-Sandals-Women-Dressy/dp/B0CPD27972/)
 
 ## Notes
 This page summarizes publicly visible product information. It does not claim independent biomechanical or orthopedic testing.
